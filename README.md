@@ -1,7 +1,7 @@
 - # Sobre mim
   Olá tudo bem?? sou  o joao vitor vermohlen
   
-  Estou participando do curso pensamento computacional  :blue_book:
+  Estudo no colégio aurelio  :blue_book:
   
   Rede estadual do Paraná 🇧🇷
   
